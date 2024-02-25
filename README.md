@@ -1,1 +1,1 @@
-check me dedevelopment on professional website
+license of tea testnet
